@@ -1,0 +1,2 @@
+# Yanderesokubad
+ヤンデレ即BADソースツリー
